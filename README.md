@@ -7,3 +7,8 @@ Hi, I am Amit Shekhar, I have mentored many developers, and their efforts landed
 **Learn from my videos: [youtube.com/@amitshekhar](https://www.youtube.com/@amitshekhar)** 
 
 **Get Mentorship: [amitshekhar.me](https://amitshekhar.me)** 
+
+You can connect with me on:
+
+- [Twitter](https://twitter.com/amitiitbhu)
+- [LinkedIn](https://www.linkedin.com/in/amit-shekhar-iitbhu)
