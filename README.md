@@ -5,7 +5,7 @@ Hi, I am Amit Shekhar, Co-Founder @ [Outcome School](https://outcomeschool.com) 
 
 **Learn from our blogs: [Outcome School Blog](https://outcomeschool.com/blog)** 
 
-**Learn from our videos: [youtube.com/@amitshekhar](https://www.youtube.com/@amitshekhar)** 
+**Learn from our videos: [youtube.com/@amitshekhar](https://www.youtube.com/@amitshekhar) and [youtube.com/@OutcomeSchool](https://www.youtube.com/@OutcomeSchool)**
 
 **Get High Paying Tech Job: [Outcome School](https://outcomeschool.com)** 
 
