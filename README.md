@@ -7,9 +7,14 @@ Hi, I am Amit Shekhar, Founder @ [Outcome School](https://outcomeschool.com) •
 
 **Learn from our videos: [youtube.com/@amitshekhar](https://www.youtube.com/@amitshekhar) and [youtube.com/@OutcomeSchool](https://www.youtube.com/@OutcomeSchool)**
 
+## I teach at Outcome School
+
+- AI and Machine Learning
+- Android
+
 **Get High Paying Tech Job: [Outcome School](https://outcomeschool.com)** 
 
 You can connect with me on:
 
-- [Twitter](https://x.com/amitiitbhu)
+- [X/Twitter](https://x.com/amitiitbhu)
 - [LinkedIn](https://www.linkedin.com/in/amit-shekhar-iitbhu)
